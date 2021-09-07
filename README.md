@@ -94,22 +94,7 @@ Expand details >
 | National Seminar, organised by Dept. of Marketing Management, DHSK Commerce College, Dibrugarh. | Economic Development of Rural Farmers: Prospects and Problems in the North Eastern Region.|UGC and in collaboration with the Office of the District Agricultural Officer, Dibrugarh, Assam. | 2 Days | 8th & 9th August, 2014 | Presented: Evaluation on Kisan Credit Card: An Empirical Study of Farmers.|
 | National Level Workshop, organised by Assam College Teachers’ Association at DU, Assam. | Rashtriya Uchchatar Shiksha Abhiyan: Its Implication in the North East Region.| In collaboration with DU, Assam.| 1 Day | 25th August, 2014 | Attended |
 | Workshop, organised by Centre for Management Studies, DU, Assam. | Use of Statistics in Commerce, Economics and Management Research | DU, Assam. | One Week | 27th to 31st July, 2015 | Attended|
- 
-## Other Related Exposure
 
-- ### ABVP (Akhil Bharatiya Vidyarthi Parishad)
-    - Year of joining: 1983
-    - Responsibility
-        - College Unit Secretary
-        - College Unit President
-        - Town Unit Secretary
-        - District Convenor
-        - Town Unit President
-        - District Incharge
-        - State Vice President, Assam
-        - State President, Assam from 2016 to 2020
-        - SWC Member, Assam
-        - NEC Member
 
 ## Administrative Experiences
 Expand details >
